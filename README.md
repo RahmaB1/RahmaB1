@@ -1,8 +1,8 @@
 ### Hi there 👋
 
-Resume: https://drive.google.com/file/d/1iQCX7J-KdQvHUm_BRGWDwui9Wp98SCGF/view?usp=sharing
+### Resume: https://drive.google.com/file/d/1iQCX7J-KdQvHUm_BRGWDwui9Wp98SCGF/view?usp=sharing
 
-LinkedIn: www.linkedin.com/in/rahmaberhan
+### LinkedIn: www.linkedin.com/in/rahmaberhan
 
 
 <!--

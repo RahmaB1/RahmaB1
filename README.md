@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+Resume: https://drive.google.com/file/d/1iQCX7J-KdQvHUm_BRGWDwui9Wp98SCGF/view?usp=sharing
+
+LinkedIn: www.linkedin.com/in/rahmaberhan
+
+
 <!--
 **RahmaB1/RahmaB1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
